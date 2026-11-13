@@ -56,3 +56,7 @@ Todo en el mismo lugar, todo conectado.
 ---
 Instagram: @al4586101
 GitHub: eugelope58-boop
+
+
+
+<img width="1920" height="1280" alt="WhatsApp Image 2026-11-13 at 7 04 30 PM" src="https://github.com/user-attachments/assets/bef856f5-ac05-477c-8bbc-1c9d241b3d7e" />
